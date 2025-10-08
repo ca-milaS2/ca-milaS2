@@ -2,7 +2,7 @@
 
 Sou a Camila, mas podem me chamar de Cá, Mila e/ou Camilinha!
 
-![Imagem do pinterest](Imagem/download.jpg)
+![Imagem do pinterest](Imagem/rosa.jpg)
 
 
 ## Curiosidades sobre mim:
